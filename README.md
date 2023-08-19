@@ -1,1 +1,0 @@
-# lizfcknz.github.io
